@@ -1,0 +1,2 @@
+# GlobalSprayer
+Skripsi Mewah Aprilia
